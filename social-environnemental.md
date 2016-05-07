@@ -1,4 +1,5 @@
 LE DEVELOPPEMENT DES RECYCLERIES / RESSOURCERIES
+
 Depuis le milieu des années 90, un nouveau type de structures issues des mouvements de la solidarité tels qu’Emmaüs, les Petits Frères des Pauvres ou bien la Croix Rouge voit le jour.
 
 La prise de conscience grandissante face à la problématique environnementale intègre les préoccupations sociales pour formuler une hypothèse combinée : l’augmentation du risque environnemental est un facteur concomitant de l’accroissement des disparités sociales.
