@@ -14,6 +14,8 @@ Enfin, la redistribution des objets collectés, réparés, intègre plus net
 L’ensemble de ces évolutions permet à cette nouvelle génération d’équipements que sont les Ressourceries et Recycleries, d’intégrer des volets d’expertise pour sensibiliser et éduquer aux questions environnementales tout en restant très fortement inscrites dans les infrastructures de solidarité, d’action sociale et de vie associative.
 
 L’adjonction de ces objectifs environnementaux donne une toute nouvelle valeur à la question de la solidarité et de l’action sociale. À la notion de charité des plus riches vers les plus pauvres nous voyons de plus en plus se substituer une vision intégrant la question du commun :
+
 Comment répondre à la crise environnementale, à 7 milliards d’êtres humains, dans un contexte social aussi inégal et concurrentiel ?
+
 L’engouement des acteurs publics pour la création de Ressourcerie et de Recycleries - doublé d’une priorisation réglementaire Européenne et Nationale du réemploi sur le recyclage - préfigure un changement de modèle par l’intégration des acteurs de la société civile dans la mise en œuvre de nouveaux modes de traitement des déchets et de sensibilisation à l’environnement.
 Il favorise la création d’un tissu d’acteurs de terrain au sein d’un champ qui nécessite plus que jamais d’induire les changements de comportements ; faisant des Ressourceries et Recycleries, un outil conséquent de transformation économique, sociale et environnementale.
